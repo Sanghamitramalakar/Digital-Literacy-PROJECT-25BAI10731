@@ -1,4 +1,4 @@
-# w
+
 # Digital Literacy Project Portfolio
 
 ## Student Information
