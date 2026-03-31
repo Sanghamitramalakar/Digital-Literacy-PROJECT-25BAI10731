@@ -111,6 +111,9 @@ This task helped me learn how to:
 
 - Use collaboration tools for school work
 
+The link to the Google form of the Digital Awareness Quiz:
+https://forms.gle/ARzBgiGgeg8Xe2YH8
+
 ---
 
 ### Module 4: Email Etiquette & Digital Communication
